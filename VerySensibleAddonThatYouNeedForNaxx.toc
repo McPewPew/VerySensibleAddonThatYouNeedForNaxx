@@ -1,0 +1,7 @@
+## Interface: 11200
+## Title: VerySensibleAddonThatYouNeedForNaxx
+## Notes: You know Naxx? Yeah, of course you do, you're great and wise...and stunning! I know, you must hear that all the time, but it's true...just stunning! Well, this is a very sensible addon that someone like you obviously already knows is essential for your Naxx-based adventures. You're the best around, soemthing something something keep you down...yeah! ≧◡≦
+## Author: Fecked
+
+VerySensibleAddonThatUwUNeedForNaxx.lua
+VerySensibleAddonThatYouNeedForNaxx.lua
