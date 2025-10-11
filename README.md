@@ -9,7 +9,6 @@ Occasionally, you'll hear idle-minded people ask, “wotsit do?”
 We must not mock them, think compassionately of them, the poor things. Respond kindly — “Exactly what it needs to.” &ast;gentle pat on head&ast;
 
 There are addons, and then there are addons that simply transcend expectation.  
-VerySensibleAddonThatYouNeedForNaxx is an addon.  
   
 Independent reviews from just a few of the millions users -   
   
