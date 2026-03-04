@@ -19,7 +19,7 @@ Dr Professor Ronald Arthur Higginbottom from Little Boggington - ⭐⭐⭐⭐⭐
 At first I didn’t understand it, but then I realised it understood me. Remarkable craftsmanship!  
   
 Mr Bernard Clutterbuck from Upper Twinge-upon-Bramble – ⭐⭐⭐⭐⭐  
-Life changing!! Reliably. Stability. Perfection! I'd give it 10 stars out of 5 if I could!!!!!!1111!!!!!  
+Life changing!! Reliability. Stability. Perfection! I'd give it 10 stars out of 5 if I could!!!!!!1111!!!!!  
   
 Mrs Mabel Clutterbuck from Upper Twinge-upon-Bramble – ⭐⭐⭐⭐⭐  
 Since I installed this addon, everything has changed. All I can think about is the marvellous man who created it, I can't even look my husband in the eye now, he's an embarrassment of a man by comparison.  
